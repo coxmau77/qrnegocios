@@ -1,1 +1,0 @@
-# qrnegocios.github.io
